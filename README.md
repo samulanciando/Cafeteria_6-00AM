@@ -1,0 +1,1 @@
+Um programador, com provavelmente 25 anos, acorda cedo, e como não gosta de fazer café, prefere ir em uma cafeteria proxima de casa, sente-se em uma mesa e abra seu notebook, apenas abra um novo arquivo e programe, peça um café, relaxe e escreva o que você sabe
